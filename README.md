@@ -1,4 +1,5 @@
-<img width="678" height="414" alt="image" src="https://github.com/user-attachments/assets/c92a5cc3-08c5-4abc-a187-7c968988a8f4" />
+<img width="724" height="560" alt="image" src="https://github.com/user-attachments/assets/1b771a18-a53e-4f3e-bd31-7730057c3812" />
+
 
 
 [ataboo .’k](https://applefritter.atabook.org) . [strawpuag](https://landoftheawesome.straw.page)
